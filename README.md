@@ -1,7 +1,7 @@
 
 
 My Journey to Becoming an IT Employee
-By Anbuvel
+
 About Me
 Hi, I’m Anbuvel!
 
